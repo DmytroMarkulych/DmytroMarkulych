@@ -1,5 +1,5 @@
 
-   # 🐞 LAUGHING ONE, WHO LAUGHS AFTER RELEASE 🐞 #  
+   # 🐞LAUGHING ONE, WHO LAUGHS AFTER RELEASE🐞 #  
 
 ## About me 👨🏼‍💻
 Hi 👋🏼 I'm Dmytro from 🇺🇦 
